@@ -1,0 +1,1 @@
+# IA-Practica3-Planificacio
